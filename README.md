@@ -1,2 +1,10 @@
 # Haiku-for-baguira
-Poem written for the sweetest cat who ever lived
+Kitten love, so pure,  
+Senior years bring fragile hearts—  
+Time slips, soft as fur.  
+
+
+Guy Orazem  
+Jan 15th, 2025  
+
+RIP Baguira
